@@ -1,5 +1,13 @@
 ### Hi there 👋
 
+95.
+Programmer.
+
+
+
+Hobby:🎨🎮🎹
+
+
 <!--
 **Jeffsven/Jeffsven** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
