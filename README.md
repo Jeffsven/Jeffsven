@@ -1,10 +1,6 @@
-### Hi there 👋
-
-- 💬 Ask me about ...
-95.
+95
 Programmer.
-
-Hobby:🎨🎮🎹
+🎨🎮🎹
 
 
 <!--
