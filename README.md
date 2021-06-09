@@ -1,8 +1,8 @@
 ### Hi there 👋
+
+- 💬 Ask me about ...
 95.
 Programmer.
-
-
 
 Hobby:🎨🎮🎹
 
